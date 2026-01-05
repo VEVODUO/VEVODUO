@@ -12,7 +12,7 @@
 
 <div align="left"> 
   
-&ensp;   [MAIN ACC !!](https://github.com/GoldenLaurelss)
+&ensp;   [FOLLO MAIN ACC !!](https://github.com/GoldenLaurelss)
 
 <div align="center">
 
