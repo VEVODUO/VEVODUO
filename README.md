@@ -8,13 +8,15 @@
 
 &emsp;
 
-&emsp;
+<div align="center"> <img width="472" height="171" alt="Screenshot 2026-01-06 214052" src="https://github.com/user-attachments/assets/eb4f5ef1-6ab4-4dc1-9735-5f4c954a99c2" />
+
 
 <div align="left"> 
   
 &ensp;   [FOLLO MAIN ACC !!](https://github.com/GoldenLaurelss)
 
 <div align="center">
+
 
 <img width="500" height="500" alt="Untitled32_20260105212528" src="https://github.com/user-attachments/assets/6c9cb4b7-efcc-4c08-949d-a73ca3e6d376" />
 
