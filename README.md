@@ -23,8 +23,6 @@
 
 [[atabook]](https://mintszlla.atabook.org/) ![wp2www](https://github.com/user-attachments/assets/f32491a0-b18f-4a14-95de-694f6da5d7fa) [[twitter]](https://x.com/underhatred) ![rl2bkz](https://github.com/user-attachments/assets/4f2dcdd3-8ccc-4d22-aed2-3d3130ffc053)
 
-<div align="center"> <img width="452" height="151" alt="Screenshot 2026-01-06 214052" src="https://github.com/user-attachments/assets/8f9c776c-b2eb-4312-8c71-29482c5ec748" />
-
 
 
 
